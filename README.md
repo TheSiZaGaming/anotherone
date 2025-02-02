@@ -13,3 +13,8 @@ BEFORE OYU RUN AWAY FROM ME
 BEFORE YOU'RE LOST BETWEEN THE NOTES
 JUST AS YOU TAKE THE MIC
 JUST AS YOU FANCE DANCE DANCE CDANCE DANCE
+
+ooooyaoyoooooooooooooooooooyaodoakokoooyooyoyooyk
+jesus christ please let me get away with this for longer
+please give me the strength
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaeeeeeeeeeeeeeooooooooooooooooooooooooooooooouuuuuuuuuuuuuuuuuuuuuuuuuuuuuuiiiiiiiiiiiiiiiiiiiiiiii
